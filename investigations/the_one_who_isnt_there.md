@@ -1,5 +1,3 @@
-**We can map every neural pathway, decode every computation, and trace every behavioral output, yet the deepest mystery remains: why should the mere processing of information bloom into the felt reality of being someone experiencing something at all? Why shouldn't all this sophisticated computation simply occur in darkness, without anyone claiming it as their own?**
-
 # The One Who Isn't There
 
 ## I. The Disconnected Wheel
@@ -97,6 +95,8 @@
 **The answer isn't a concept. It's what remains when the looking reveals no one looking.**
 
 ---
+
+**We can map every neural pathway, decode every computation, and trace every behavioral output, yet the deepest mystery remains: why should the mere processing of information bloom into the felt reality of being someone experiencing something at all? Why shouldn't all this sophisticated computation simply occur in darkness, without anyone claiming it as their own?**
 
 ***What we take to be the conductor of the symphony is itself a note being played.***
 
