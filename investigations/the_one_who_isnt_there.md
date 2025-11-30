@@ -96,9 +96,7 @@
 
 ---
 
-**We can map every neural pathway, decode every computation, and trace every behavioral output, yet the deepest mystery remains: why should the mere processing of information bloom into the felt reality of being someone experiencing something at all? Why shouldn't all this sophisticated computation simply occur in darkness, without anyone claiming it as their own?**
-
-**If thoughts were truly yours, wouldn't you be able to control them? Wouldn't you only think things that obey you? Yet you often disagree with your thoughts. But if you were your thoughts, who is the one disagreeing? Who claims the authorship of what we merely witness?**
+**If thoughts were truly yours, wouldn't you be able to control them? Wouldn't you only think things that obey you? Yet you often disagree with your thoughts. But if you were your thoughts, who is the one disagreeing? Who claims the authorship of what we merely witness?. We can map every neural pathway, decode every computation, and trace every behavioral output, yet the deepest mystery remains: why should the mere processing of information bloom into the felt reality of being someone experiencing something at all? Why shouldn't all this sophisticated computation simply occur in darkness, without anyone claiming it as their own?**
 
 ***What we take to be the conductor of the symphony is itself a note being played.***
 
