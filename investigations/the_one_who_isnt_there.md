@@ -96,6 +96,24 @@
 
 ---
 
+## Ramana Maharshi - Conscious Immortality Chapter:
+**How should we treat others? There are no others.**
+
+**The lamps are different, but the Light is the same - Rumi**
+
+**The world exists only in the mind.** <br>
+**Beneath identities and stories, you and I are awareness itself, experiencing itself in infinite forms.** <br>
+**The world you see is the mirror of your mind. What you experience outside is the echo of what you hold inside.** <br>
+**Bondage is just a thought. Freedom is also just a thought. The mind spins both stories - Yog Vasishta**
+
+**The world has no existense apart from you. <br> At every moment it is but a reflection of yourself. <br> You create it, you destroy it - Nisargadatta Maharaj**
+
+**Try to realize that the body is not you, the emotions are not you, the intellect is not you. <br> When all these are stilled, you will find, something else is there; hold it that it will reveal itself.**
+
+**You are not your mind; you are the awareness behind it. You are not your thoughts; you are the observer of them. You are not your emotions; you are the space in which they arise. You are not your body; you are the consciousness experiencing it. You are not any label, role, or identity; you are the timeless presence in which they appear. You are the vastness that contains all things.**
+
+---
+
 ***If thoughts were truly yours, wouldn't you be able to control them? Wouldn't you only think things that obey you? Yet you often disagree with your thoughts. If you were your thoughts, who is the one disagreeing? Who claims authorship of what merely appears?***
 
 ***Beneath the claiming: Broca's area coordinating speech, Wernicke's area processing meaning, the default mode network weaving narrative and self-reference—all of it unfolding without anyone directing. What we call ownership is simply another story appearing, a narrative that assumes the existence of a narrator. From this illusion, the sense of authorship arises. The claiming, the believing, the sense of control—all of it rests on nothing more.***
